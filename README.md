@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Druid98
+- 👀 I’m interested in hacking 
+- 🌱 I’m currently learning cyber security 
+- 💞️ I’m looking to collaborate on anything beginner lever to ease my way into the field
+- 📫 Reach out to me here and we can converse
